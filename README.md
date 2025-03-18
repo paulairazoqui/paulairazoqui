@@ -21,10 +21,9 @@ I am particularly interested in the intersection of **biotechnology, healthcare,
 ## 📚 Certifications & Education  
 🎓 **PhD in Biology** – Specialized in Molecular Biology & Genetics.  
 📜 **Data Science & Machine Learning Certifications** (Python, SQL, Power BI).  
-🏆 **Multiple projects in AI-driven business analysis**.  
 
 ## 📫 Let's Connect!  
-💼 **LinkedIn:** www.linkedin.com/in/paula-irazoqui-0839207a<br>
-✉️ **Email:** paulairazoqui@gmail.com<br>
+💼 **LinkedIn:** [www.linkedin.com/in/paula-irazoqui-0839207a](www.linkedin.com/in/paula-irazoqui-0839207a)<br>
+✉️ **Email:** [paulairazoqui@gmail.com](paulairazoqui@gmail.com)<br>
 
 🚀 **Open to collaborations and new opportunities!**  
